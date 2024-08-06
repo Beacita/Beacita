@@ -1,7 +1,9 @@
 
-oii meu nome é beatriz✓🤸🌹
-15y,araraquara-sp🇧🇷
-vapo
+_oii meu nome é beatriz✓🤸🌹
+_15y,araraquara-sp🇧🇷
+_vapo
+_@sofiasantino casa cmg bb_ 💕
+@beatriz._.citaa
 
 <!--
 **Beacita/Beacita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
