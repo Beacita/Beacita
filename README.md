@@ -1,5 +1,7 @@
 
 oii meu nome é beatriz✓🤸🌹
+15y,araraquara-sp🇧🇷
+vapo
 
 <!--
 **Beacita/Beacita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
