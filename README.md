@@ -3,6 +3,7 @@
 /15y,araraquara-sp🇧🇷
 /@sofiasantino casa cmg bb_ 💕
 /@beatriz._.citaa
+![](![image](https://github.com/user-attachments/assets/c69738ed-b98b-4a83-ae71-7d32fa5ee44c)
 
 <!--
 **Beacita/Beacita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
