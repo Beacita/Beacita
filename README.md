@@ -1,9 +1,25 @@
+-@beatriz._.citaa
+-oii bbs sou a beatriz mas prefiro que me chamem de bia
 
-/oii meu nome é beatriz✓🤸🌹
-/15y,araraquara-sp🇧🇷
-/@sofiasantino casa cmg bb_ 💕
-/@beatriz._.citaa
-![](![image](https://github.com/user-attachments/assets/c69738ed-b98b-4a83-ae71-7d32fa5ee44c)
+-amo esportes, mas os meus preferidos sao, volei e ginástica artistica
+-minha musica da momento é "me myself & i" e alguma da lana del rey
+-amo ouvir musicas e cantar
+-quero aprender a tocar piano
+-amo minhas amigas e familia
+-me considero uma pessoa engraçada e legal
+-adoro gloss e maquiagem
+
+-#top 5 melhores emojis
+-👄
+-🎀
+-✨
+-👒
+-💟
+
+
+
+
+
 
 <!--
 **Beacita/Beacita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
